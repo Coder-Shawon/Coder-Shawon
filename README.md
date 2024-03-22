@@ -22,7 +22,7 @@ Welcome to my GitHub haven, where I'm crafting my digital identity!
 ## Contact Me
 
 - 📧 Drop me an email at Shakil.ahmed.cse@ulab.edu.bd
-- 🐦 Connect on [Twitter](https://twitter.com/ShakilASha50083)
+- 🐦 Connect on [Twitter](https://twitter.com/iam_Shawon_)
 - 📸 Follow on [Instagram](https://www.instagram.com/shakil_ahmed.shawon/)
 - 💼 LinkedIn: [Shakil Ahmed Shawon](https://www.linkedin.com/in/shakil-ahmed-shawon/)
 
